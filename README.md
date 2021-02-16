@@ -1,0 +1,1 @@
+Hi am very epic programmer. Make cool code in block game. I use a language called skript to make games and plugins in Minecraft. You will find my free resources here, but paid resources are on my Discord. Contact me at cheekyrotter#7769 to find out more.
